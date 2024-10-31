@@ -1,6 +1,6 @@
 # LTfree
 # Introducting the LTspoofer for FREE please join the server its will really help us
-#At 5 stars i'll update (i will add windows activator for every Windows versions)
+# At 5 stars i'll update (i will add windows activator for every Windows versions)
 for now i only added msi spoof if you want more update leave a stars and join the discord --> https://discord.gg/swHVUU5hGb
 
 
